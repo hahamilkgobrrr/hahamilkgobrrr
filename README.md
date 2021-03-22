@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @hahamilkgobrrr
+- 👀 I’m interested in c++ game making
+- 🌱 I’m currently learning c++
+- 📫 How to reach me discord; Endor#4242 || discord.gg/housing
